@@ -10,5 +10,5 @@ kinda abour me ..
 
  > Don't take shit super seriously i joke like 80% of the time , so dont tak stuff personally but if it makes you uncomfkrabke kr upset please voice rhat.
 
-I like drawing and messing around alalala
+> I struggle putitng myself knto others shoes so if i seem rude or dismisisve of rhings i apolgoize . autism 👎
 

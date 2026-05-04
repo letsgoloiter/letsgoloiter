@@ -6,7 +6,7 @@
 
 kinda abour me ..
 
-> I like joking around and being weird ,,,  , My biggest inspos are old 2000's media and webcomics, like JTHM, Penny Arcade, Homestuck, etc. I like @ lot of sdtuff like history, hetalia/country humans , ranfren , hotline miami, uhhhmm way moer stuff but i cant kep up...
+> I like joking around and being weird ,,,  , My biggest inspos are old 2000's media and webcomics, like JTHM, Penny Arcade, Homestuck, etc. I like @ lot of sdtuff like history (but anyone pro-nazi or a neo-nazi r fucking stupid) , hetalia/country humans , ranfren , hotline miami, uhhhmm way moer stuff but i cant kep up... 
 
  > Don't take shit super seriously i joke like 80% of the time , so dont tak stuff personally but if it makes you uncomfkrabke kr upset please voice rhat.
 
